@@ -3,14 +3,14 @@
 ## 🚀 Быстрый доступ в Laki World
 
 <p>
-  <a href="https://laki-gateway4.com/ru/signup?faff=117&sub=glbrngit"
+  <a href="https://world-gateway4.com/ru/signup?faff=117&sub=glbrngit"
      style="display:inline-block; padding:12px 18px; background:#1677ff; color:#fff; text-decoration:none; font-weight:700;">
     🔓 Лаки Ворлд официальный сайт вход
   </a>
 </p>
 
 <p>
-  <a href="https://laki-gateway4.com/ru/signup?faff=117&sub=glbrngit"
+  <a href="https://world-gateway4.com/ru/signup?faff=117&sub=glbrngit"
      style="display:inline-block; padding:12px 18px; background:#22c55e; color:#fff; text-decoration:none; font-weight:700;">
     ⚡ Открыть зеркало Laki World
   </a>
@@ -130,7 +130,7 @@
 
 ## 🔗 Актуальная ссылка
 
-👉 [Перейти в Laki World](https://laki-gateway4.com/ru/signup?faff=117&sub=glbrngit)
+👉 [Перейти в Laki World](https://world-gateway4.com/ru/signup?faff=117&sub=glbrngit)
 
 ---
 
